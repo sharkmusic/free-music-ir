@@ -17,3 +17,15 @@
 - دانلود آهنگ Can't Remember to Forget You
 - دانلود آهنگ Te felicito
 - دانلود آهنگ Chantaje
+
+
+### دانلود آهنگ های تیلور سوییفت
+- دانلود آهنگ Cruel Summer
+- دانلود آهنگ Blank Space
+- دانلود آهنگ Shake It Off
+- دانلود آهنگ Love Story
+- دانلود آهنگ Lover
+- دانلود آهنگ Fortnight
+- دانلود آهنگ Bad Blood
+- دانلود آهنگ Look What You Made Me Do
+- دانلود آهنگ I Know You Were Trouble
