@@ -35,6 +35,12 @@
 - دانلود آهنگ Without Me
 - دانلود آهنگ RapGod
 - دانلود آهنگ The Monster
+
+### دانلود آهنگ های لیدی گاگا
+- دانلود آهنگ Poker Face
+- دانلود آهنگ Bad Romance
+- دانلود آهنگ Bloody Mary
+- دانلود آهنگ Just Dance
 - دانلود آهنگ Love The Way You Lie
 - دانلود آهنگ Venom
 - دانلود آهنگ Need A Doctor
